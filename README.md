@@ -1,1 +1,1 @@
-Lab Assignments and Project
+Lab Assignments and Projects
